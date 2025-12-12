@@ -1,5 +1,8 @@
-<p>just wanna be alive till tomorrow, see if life is kind</p>
-<p>just wanna make something new, wanna be rich</p>
-<p>just wanna be appreciated, just wanna exist</p>
+<h1>math is the purest art one can get,</h1>
+<p>and i shall make it my own;</p>
 <br>
-<p>reach out to me [shineyubhandari9@gmail.com]</p>
+<br>
+<br>
+<p>ffmpeg my beloved</p>
+
+<p>~[<a href="mailto:shineyubhandari9@gmail.com">shineyubhandari9@gmail.com</a>]</p>
